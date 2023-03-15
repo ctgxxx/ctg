@@ -34,7 +34,7 @@ Hon Studio Bodies (aka Manatee Industry) (Female):
 This is the same or similar body used for manatee industry figures, other figures also use this buck. These female bucks are compatible with almost all figma heads or any head that has a pegged neck joint. These are anatomically correct and come with several hands.
 >https://www.amazon.co.jp/gp/product/B07W1CFP4M/ 
 
-Taobao Body (Female) (needs Chinese proxy):
+Taobao Body (Female) (needs Chinese proxy);  Currently discontinued link is up for posterity incase that changes:
 Female buck body that has large breasts. This body is very similar to figma super sonico’s body without the swimsuit. The breast on this buck is larger than the Hon buck however the quality is not as good. Still recommended for those who want a larger bust than a hon body provides.
 >https://item.taobao.com/item.htm?id=659231514481 
 
