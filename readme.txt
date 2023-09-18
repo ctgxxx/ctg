@@ -36,7 +36,8 @@ This is the same or similar body used for manatee industry figures, other figure
 
 Taobao Body (Female) (needs Chinese proxy);  Currently discontinued link is up for posterity in case that changes:
 Female buck body that has large breasts. This body is very similar to figma super sonico’s body without the swimsuit. The breast on this buck is larger than the Hon buck however the quality is not as good. Still recommended for those who want a larger bust than a hon body provides.
->https://item.taobao.com/item.htm?id=659231514481 
+>https://item.taobao.com/item.htm?id=659231514481  >Old link
+>http://a.m.taobao.com/i652633538446.htm           >New Link verified as of 9/18/2023
 
 Sozai Bodies
 The Sozai bodies are great for customizers, they don’t feature the anatomical correctness of the Hon studio or Taobao bodies, but the tradeoff is that they come in a variety of flesh tones which should match a head that’s a different color than the standard flash color figma and figuarts usually uses. If you are in search of a male body this is at the moment your only option. 
